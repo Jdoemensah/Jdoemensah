@@ -1,5 +1,6 @@
 - 👋 Hi there, I’m Jackson.
-- 👀 I’m interested in sustainable materials engineering, data analytics for public policy and education in Africa
+- I am a Doctoral Student, Enterpreneur and Educator.
+- 👀 my interests include sustainable materials engineering, data analytics for public policy and education in Africa
 - 🌱 I’m currently learning programming skills alongside sustianble products management, research and engineering
 - 💞️ I’m looking to collaborate on engineering project/program maanagement, carbon benefits forecasting and sustainability policy analysis.
 - 📫 How to reach me: jdoemensah@gmail.com
