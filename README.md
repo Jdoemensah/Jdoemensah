@@ -1,6 +1,6 @@
 👋 Hi there, I’m Jackson.
 
-I am a Doctoral Student, Enterpreneur and Educator.
+I am a Doctoral Research Student and Educator.
 
 My interests include sustainable materials engineering, data analytics for public policy and education in Africa
 
