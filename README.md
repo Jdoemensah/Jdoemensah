@@ -1,10 +1,10 @@
 👋 Hi there, I’m Jackson.
 
-I am a Doctoral Research Student and Educator.
+I am a PhD(c) in renewable materials science and MPA Candidate in Public Policy.
 
-My interests include sustainable materials engineering, data analytics for public policy and education in Africa
+I a multidisciplinary. My core interests include, but are not limited to sustainability/clean tech, Electric vehicles and public policy analysis. 
 
-I’m currently learning programming skills alongside sustianble products management, research and engineering
+I love to talk about clean tech, sustainability especially in electric vehicles, public policy analysis, climate change and forest products among others.
 
 I’m looking to collaborate on engineering project/program maanagement, carbon benefits forecasting and sustainability policy analysis.
 📫 Reach me via: jdoemensah@gmail.com
