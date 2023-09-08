@@ -1,12 +1,12 @@
 👋 Hi there, I’m Jackson.
 
-I am a PhD(c) in renewable materials science and MPA Candidate in Public Policy.
+I am a PhD(c) in renewable materials science.
 
-I a multidisciplinary. My core interests include, but are not limited to sustainability/clean tech, Electric vehicles and public policy analysis. 
+I a multidisciplinary. My core interests include, but are not limited to process improvement, industrial engineering, policy analysis, leadership.
 
-I love to talk about clean tech, sustainability especially in electric vehicles, public policy analysis, climate change and forest products among others.
+I love to talk about sustainability engineering, Startups and Leadership. 
 
-I’m looking to collaborate on engineering project/program maanagement, carbon benefits forecasting and sustainability policy analysis.
+I’m always looking to collaborate on engineering project/program maanagement, carbon benefits forecasting and sustainability/engineering policy analysis projects.
 📫 Reach me via: jdoemensah@gmail.com
 
 <!---
